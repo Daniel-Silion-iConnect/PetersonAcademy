@@ -1,3 +1,9 @@
+
+
+# Intro to Nietzsche
+
+## Nietzsche and Dostoevsky Notes
+
 All right, so a little bit of an overview of Nietzschean thought. He contrasted truth and perspectivism. There's echoes there of the battle between empiricism and rationalism.
 
 So, here's three problems. The world's very complicated. It's hard to see. Everything you see is way more complicated than you can see. So, when I see you, people sitting here—first of all, I only see you in a tiny slice of time, no idea about your past or your future. So, you're localized in time. I only see your front. I only see your surface. I don't even see much of your surface because you're hidden by clothes. But even given that, you're very, very complicated biologically.
